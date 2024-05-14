@@ -1,3 +1,3 @@
-# Mirzah
+# Mirza
 qwer
 My Project
